@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @M1L4N85
-- 👀 I’m interested in gaming & new techmology.
+- 👀 I’m interested in gaming & new technologies.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - Just remeber that You can't do this XD
